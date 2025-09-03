@@ -27,7 +27,7 @@ The **Pump.fun Smart Contract forking** is an innovative platform  designed to a
 
 ## 📞 Contact Info
 
-### Discord: [enlomy](https://discord.com/users/1385027223383179284)
+### Discord: [Taro](https://discord.com/users/1385027223383179284)
 
 ## 🍵 Tip
 
